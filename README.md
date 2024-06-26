@@ -1,7 +1,7 @@
-- 👋 Hi, I’m Porn
-- 👀 I’m interested in Porn
-- 🌱 I’m currently learning Porn
-- 💞️ I’m looking to collaborate on Porn
+- 👋 Hi, I’m SILLY AS FUCK!!!
+- 👀 I’m interested in Games actually :3
+- 🌱 I’m currently learning HAXEFLIXEL AND LUA 
+- 💞️ I’m looking to collaborate on FNF mods and Indie Games
 - 📫 How to reach me Porn
 
 <!---
